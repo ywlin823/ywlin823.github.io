@@ -1,2 +1,2 @@
 # ywlin823.github.io
-app-ads
+google.com, pub-1110349064395169, DIRECT, f08c47fec0942fa0
